@@ -18,5 +18,21 @@ Song 06 Veil of Grace — Hymn of mercy to heal fungal, viral, and timebound aff
 
 Song 07 Crown of Peace — Navigational benediction unlocking truth and establishing peace.
 
-### Prayer
+### Scripture tie-ins (for leader guides)
+
+• Diadem of Christ — Revelation 5; Psalm 91
+
+• Crown of Wisdom — Psalm 18; Proverbs 2
+
+• Scepter & Coin — Matthew 6; Luke 12; 1 Timothy on greed
+
+• Hallway Voice — Psalm 55; 2 Timothy 1:7
+
+• Sight Restored — Psalm 146; Isaiah 53
+
+• Veil of Grace — Genesis 1; Isaiah 61
+
+• Crown of Peace — Psalm 46; Revelation 21
+
+#### Prayer
 Sovereign Lord, place Your diadem upon our heads and Your crown upon our nations. Where memetic and spiritual evils spread, send Your light to unmask and bind them. Heal the broken, restore markets and minds, and let Your kingdom come until every heart proclaims Your reign. Amen.
