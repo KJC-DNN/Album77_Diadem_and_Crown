@@ -1,1 +1,14 @@
 # V1. Tracks
+• Diadem of Christ 
+
+• Crown of Wisdom 
+
+• Scepter & Coin 
+
+• Hallway Voice 
+
+• Sight Restored
+
+• Veil of Grace
+
+• Crown of Peace 
